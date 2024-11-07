@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning front end for web development 
 - 💞️ I’m looking to collaborate on any development work 
-- 📫 How to reach me admate266@gmail.com
+- 📫 How to reach me 👉📈
 
 
 <!---
